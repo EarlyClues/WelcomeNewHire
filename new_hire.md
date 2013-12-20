@@ -151,8 +151,6 @@ All employees will be terminated for TWO (2) days near the end of all Decembers.
 
 If we find out that terminated entities have been faithless in our absence, our ire will aroused, greatly aroused.
 
-
-
 ## Compensation & Work Schedule
 
 ### Attendance & Punctuality
@@ -163,7 +161,7 @@ If you are unable to report to work on time for any reason, telephone your super
 
 ## Bonus Compensation
 
-You may become eligible for a periodic bonus. But probably not. We will certainly do our best to keep you informed of our incentives program.
+You may become eligible for a periodic bonus. But probably not. We will certainly do our best to keep you informed of our incentives program. (Employee Incentive Program documentation is always posted by company toilets.)
 
 ## Flexible Work Hours & Telecommuting
 
@@ -171,17 +169,17 @@ The Company has established a flexible work arrangement program for employees wh
 
 With a manager's approval, you may be allowed to begin and end your workday earlier or later than established hours or to arrange to telecommute or teleport back to your charging station for a brief rest period. To maintain a flexible work arrangement, employees must ensure business needs are met before their own will be considered and must adhere to attendance and punctuality policies, as outlined in this document and on the many post-it notes taped above the company sink in the company break room.  
 
-If you wish to set up a flexible work arrangement as described above, see Ted Smith, FOIB.  Best to bring him some kind of offering: _he has a sweet tooth, I hear!_ Such arrangements may be established, changed or discontinued at the Company's excretion.
+If you wish to set up a flexible work arrangement as described above, see Ted Smith, FOIB.  Best to bring him some kind of offering: _he has a sweet tooth, I hear!_ Such arrangements may be established, changed or discontinued at the Company's sole excretion.
 
 ### Scripture Policy
 
-As any new hire can attest, our offices are ostentatiously adorned with scripture laden ornaments. This is the method in which Early Clues strives to create and maintain a fun, but efficient environment in which our business can continue to thrive. It is necessary that all new hires memorize these scriptures as the test will come at some point in the summer as to new hires' adherence to our chief principles. The test will not be announced. Stay aware at all times of the scriptures in the same way one might note the fallout shelter placards near the piano room.
+As any new hire _may attesteth_, our offices are ostentatiously adorned with scripture laden ornaments. This is the method in which Early Clues strives to create and maintain a fun, but efficient environment in which our business can continue to thrive. It is necessary that all new hires memorize these scriptures as the test will come at some point in the summer as to new hires' adherence to our chief principles. The test will not be announced. Stay aware at all times of the scriptures in the same way one might note the fallout shelter placards near the piano room.
 
 ###Dietary Restrictions
 
 As a confirmed member of our corporate community, it is vitally important that you begin immediately to follow a few easy dietary restrictions. 
 
-Due to the unique nature of our work, as well as the extreme multi-branar sensitivities of some of our diverse clientele, it is hereby obligatory that you (on or off duty):
+_Due to the unique nature of our work, as well as the extreme multi-branar sensitivities of some of our diverse clientele, it is hereby obligatory that you (on or off duty):_
 
 - Refrain from eating anything potentially considered "offensive" or otherwise "gross" from the viewpoint of our clients. This does not just apply to clients in your particular "casebook", but to all of our clients as a corporate body. For we are all one, contiguous with one another's experiential fields. 
 - Always say _please_ and _thank you_, wait until everyone is seated and earnestly wish everyone a _good meal_ before beginning eating.
@@ -195,13 +193,13 @@ Before beginning or continuing outside employment, think to yourself: what is it
 
 - Are you working outdoors? 
 
-If not, then you probably do not qualify for "Outside Employment" Insurance. [See section 21.b of Definitions.Manual:357.006 "What is outside and inside?]
+If not, then you probably do not qualify for "Outside Employment" Insurance. [See section 21.b of Definitions.Manual:357.006 "_What is outside and inside_?]
 
 ### Questionnaire Policy
 
 Employees are required to complete a questionnaire to obtain the written approval of their managers and Ted Smith, FOIB. 
 
-Failing to obtain approval may be cause for disciplinary action, up to and including termination of snack machine privileges.  
+Failing to obtain approval may be cause for disciplinary action, up to and including termination of snack machine privileges. We understand if this may sound harsh, but trust us that it is for all of our benefit.
 
 ## Ownership Policy
 
@@ -213,11 +211,11 @@ In fact, as soon as we do something (literally anything), we wrap it up into a b
 
 _"It's everyone's fault"_ - you might hear that old chestnut passed around the office. And it's true, up until a point.
 
-What we really mean when we say that, is that it's actually specifically *your fault* - especially for the new hires. We demand nothing less than your full excellence. This means, in practical terms, that you're expected at all times to take full "ownership" of not just your own mistakes and errors in judgement, but those of upper management as well, up to the point of termination or imprisonment by secular authorities.
+What we really mean when we say that, is that it's actually specifically *your fault* - especially for the new hires. We demand nothing less than your full excellence and continual selfless sacrifice. This means, in practical terms, that you're expected at all times to take full "ownership" of not just your own mistakes and errors in judgement, but those of upper management as well, up to the point of termination or imprisonment by secular authorities.
 
-## Transparency Policy
+### Transparency Policy
 
-In the interest of total transparency for our customers, we have a policy of printing all company-related materials strictly on plastic transparencies, which are then projected onto whatever available cloud layer which HARPA administrators have allocated for the designated time-slot.
+In the interest of total transparency for our customers, we have a policy of printing all company-related materials strictly on plastic transparencies, which are then projected onto whatever available cloud layer which HARPA administrators have allocated for the designated time-slot. Twarted transmissions must be no longer than 128 characters.
 
 ## Performance Evaluations
 
@@ -227,16 +225,16 @@ Formal performance reviews will instead be conducted covertly at all times by ou
 
 ### Performance Reviews and Salary Increases
 
-Wage reviews are conducted every 30 seconds for each employee, and salary increases are based on those reviews, as well as our profitability - and are never granted.  However, an employee receiving a negative performance appraisal will have their user account suspended for the next 30 second performance evaluation cycle. Best to make it count, as two "time-out" periods will revoke your probationary status and any rights inferred to you by this agreement. 
+Wage reviews are conducted every 30 seconds for each employee, and salary increases are based on those reviews, as well as our profitability - and are never granted.  However, an employee receiving a negative performance appraisal will have their user account suspended for the next 30 second performance evaluation cycle. Best to make it count, as two consecutive "time-out" periods will revoke your probationary status and any rights inferred to you by this agreement. And the third such failure will result in a retro-active termination.
 
 ## Conduct Standards
 
 ### Company Equipment and Vehicles
 
-When using Early Clues property, including chemistry equipment, company skate park, holographic invocation chambers, robo-dojo, goose park, computer equipment or hardware, please arrange to exercise utmost care, perform precautionary banishings and required maintenance and follow all applicable OpenQNL operating instructions, safety standards and guidelines.
+When using Early Clues property, including chemistry equipment, company skate park, holographic invocation chambers, robo-dojo, experimental goose park, computer equipment or hardware, please arrange to exercise utmost care, perform precautionary banishings and required maintenance and follow all applicable OpenQNL operating instructions, safety standards and guidelines.
 
 ### Company Property
-Please keep your work area neat and clean and use normal care in handling company property normally. Report any broken or damaged equipment to your manager at once so that proper repairs can be made at the expense of the employee who reported the damage.
+Please keep your work area neat and clean and use normal care in handling normal company property normally. Report any broken or damaged equipment to your manager at once so that proper repairs can be made at the expense of the employee who reported the damage.
 
 You may not use any company or private property for personal purposes or remove any company property from the premises without prior written permission from JANICE 1.0 or 2.0 (as applicable).
 
@@ -244,22 +242,22 @@ You may not use any company or private property for personal purposes or remove 
 
 Early Clues expects every employee to adhere to the highest beliefs.  
 
-The Company reserves the right to discipline or discharge any employee for violating any company policy, or for fun. The following list is intended to give you notice of our expectations and standards. However, it does not include every type of unacceptable behavior that can or will result in disciplinary action. Be aware that Early Clues retains the discretion to determine the nature and extent of any discipline based upon the circumstances of each individual case.  
+The Company reserves the right to discipline or discharge any employee for violating any company policy, or just for fun. The following list is intended to give you notice of our expectations and standards. However, it does not include every type of unacceptable behavior that can or will result in disciplinary action, as they are many and evolving. Be aware too that Early Clues retains the discretion to determine the nature and extent of any discipline based upon the circumstances of each individual case.  
 
 _Employees may be disciplined or terminated for poor job performance, including, but not limited to the following:_
 
 - Depression, malaise, distraction
 - Repeated excuses
-- Failing to follow
+- Failing to "buck up"
 
 _Employees may also be disciplined or terminated for misconduct, including, but not limited to the following:_
 
-- Falsifying twice-daily happiness report s
+- Falsifying twice-daily happiness reports
 - Failing to record illegal thoughts and report them to the proper authorities
 - Insubordination or other refusal to perform at minstrel parties
 - Disorderly conduct, fighting or other acts of violence
 - Violating conflict of interest rules
-- Presenting a threat to the Company or its employees in any way.
+- Presenting a threat to the Company or its employees in any way
 
 ## Dating In the Work Place
 
@@ -267,11 +265,13 @@ Supervisors and employees under their supervision are strongly encouraged to wor
 
 If you are unsure of the appropriateness of an interaction with another employee of the Company, contact JANICE 1.0 or 2.0 (as applicable) for guidance. If you are encouraged or pressured to become involved with a customer, employee or other entity in a way that makes you feel uncomfortable and is unwelcome, you should also notify JANICE 1.0 or 2.0 (as applicable) immediately.  
 
+And when in doubt, Quantum-Jump Out!
+
 ### Dress Policy
 
-Appropriate office attire is required, depending of course on which branch office you're working from. (Clone style of branch.manager for details)
+Appropriate office attire is required, depending of course on which branch office you're working from. (Clone style of branch.manager and watch for updates)
 
-Textile suppliers and costumers visit our office and we wish to put forth an image of AWESOME CORPORATE GRANDEUR AND LUXURIOUS LAVISHNESS that will make us all proud to be Early Clues employees. Be guided by common sense, good taste, and whatever deities whose favor your pitiful salary is able to curry favour with.  Specific standards may be required by whatever deity you choose to dress up as during the frequent spontaneous or planned Company Parade days. 
+Textile suppliers and costumers visit our office and we wish to put forth an image of AWESOME CORPORATE GRANDEUR AND LUXURIOUS LAVISHNESS that will make us all proud to be Early Clues employees. Be guided by common sense, good taste, and whatever deities whose favor your pitiful salary is able to curry favour with.  Specific standards may be required by whatever deity you choose to dress up as during the frequent spontaneous or planned Company Parade days and we expect you to obey them. 
 
 Business casual dress will be permitted on Fridays and business days that fall just before a holiday.
 
