@@ -50,7 +50,9 @@ Signed,
 
 Please insert a description of your company, its goals, mission statement and values   
 
+---
 
+# COMPANY POLICIES
 
 //No edits made yet to confidentiality section-GORD
 
