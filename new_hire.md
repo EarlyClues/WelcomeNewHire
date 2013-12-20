@@ -63,22 +63,25 @@ Information that pertains to Early Clues's business, including all nonpublic inf
 
 Please help protect confidential information - which may include, for example, trade secrets, customer lists and company financial information - by taking the following precautionary measures:
 Discuss work matters only with other Early Clues employees who have a specific business reason to know or have access to such information.
-Do not discuss work matters in public places.
+
+Do not discuss work matters in public places. Do not discuss work matters in private places. 
+
 Monitor and supervise visitors to Early Clues to insure that they do not have access to company information.
 Destroy hard copies of documents containing confidential information that is not filed or archived.
 Secure confidential information in desk drawers and cabinets at the end of every business day.
 
 Your cooperation is particularly important because of our obligation to protect the security of our clients' and our own confidential information.  Use your own sound judgment and good common sense, but if at any time you are uncertain as to whether you can properly divulge information or answer questions, please consult a Early Clues officer.
 
-Conflict of Interest
+### Conflict of Interest
+
 Employees must avoid any personal interests or relationship which might conflict or appear to conflict with the best interests of Early Clues. The reason being is that "we" are much more "interesting" than "you." Seriously, what could be more interesting than The Company? The things "you" do or say as an individual do not matter and won't count for anything unless they can be utilized by our marketing department to make "us" look interesting, and must not take the spotlight off "us" to focus on "you" or your interests (be they badminton, or whatever). You must avoid any situation in which your loyalty may be divided and promptly disclose any situation where an actual or potential conflict may exist.  
 
-Examples of potential conflict situations include:
+*Examples of potential conflict situations include:*
 
-Having a personal interest in games, books, or food, for example
-Displaying behaviours scientifically-proven to be indicative of self-interest, such as but not limited to personal grooming, attempted use of sick-days, etc
-Owning or having a significant financial interest in, or other relationship with, a Early Clues competitor, customer or supplier, and
-Accepting gifts, entertainment or other benefit of more than a nominal value from a magician, herald, wizard, or parade-side peddler. 
+* Having a personal interest in games, books, or food, for example
+* Displaying behaviours scientifically-proven to be indicative of self-interest, such as but not limited to personal grooming, attempted use of sick-days, etc
+* Owning or having a significant financial interest in, or other relationship with, a Early Clues competitor, customer or supplier, and
+* Accepting gifts, entertainment or other benefit of more than a nominal value from a magician, herald, wizard, or parade-side peddler. 
 
 Anyone with a conflict of interest must disclose it to management and remove themselves from negotiations, deliberations or votes involving the conflict and pray in a closed cell for 17 days and nights, or a Buorthian Full Moon - whichever comes first. You may be called upon after your period of mandatory seclusion to answer questions about the Nature or Essence of Being such that your knowledge may be of assistance to Early Clues and its ontological shareholders and stakeholders. 
 
