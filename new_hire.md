@@ -3,17 +3,22 @@
 
 # WELCOME NEW HIRE 
 
-## YOU'RE OFFICIALLY AWESOME!
+## You're officially awesome!
 
 Dear Employee:
 
 You and Early Clues have made an uber-important decision: the corporate bond of marriage. And that means forever…
 
 [But in your limited form now, you can't possibly comprehend what that will entail, and how it will change you… ]
+
 You must be so excited to begin your career at Early Clues!
+
 [So] Good, cultivate that feeling.
+
 Because our plan is to rigorously harvest employee enthusiasm, and transform it into BIG SAVINGS!!! which we can then pass on to our dear, dear, valued clientele, and money launderers overseas. In fact, you might say it's our business model! [Or, wait, is it? - JANICE, can you have legal check this before it goes to print?:thx]
-CONGRATULATIONS ON YOUR SELECTION!
+
+## CONGRATULATIONS ON YOUR SELECTION!
+
 If you've made it this far, it's because you've passed a rigorous 63.5-point background and permanent record/user history check, as required by Universal Free Realms Standard Protocols regarding Worker Repurposing. Investigation results are now available for private review in your Liminal Vault. After a 21 day probationary period, they will be released publicly in the interest of transparency on our multi-dimensional internet locality.
 The Company has tentatively decided (a position we are free to revoke without notice or hesitation) that you can [potentially] contribute to our success, and you've decided that Early Clues is the organization where you can pursue your career productively by updating your social media at a leisurely pace. As part of the hiring process, we begged you to reconsider this, but now we are all stuck. Legally and permanentinuously. So get used to it. 
 
