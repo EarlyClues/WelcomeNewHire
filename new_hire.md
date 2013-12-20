@@ -31,7 +31,7 @@ Anyway, as an integral part of our SATISFACTION PIPELINE PROCESS, it will be int
 
 Every job in our company is important (read: if you don't like it, we can find someone else who will be happy to do it with a smile[!] for half your current wage), and you will play a key role in the continued growth of our company, or you will be cast aside like so much useless junk. In fact, it is hereby obligatory that you immediately update your worldview pack so that the importance, grandeur and even, dare I say it, but majesty of our corporation occupies a position of undisputed centrality. You could call us "the mountain of your being," because that is what we've already become, and which you will spend every day hereafter climbing to actualize on our patented company ladders and climbing walls [Not available at all branch locations]. With acceptance and installation of this simple critical patch, success is sure to follow! //*Note: Success not guaranteed/thx.legL
 
-Should you have any questions concerning this handbook, your employment or benefits, please feel free to activate your Inner.HelpDesk discuss them with your supervisor or manager's automated in-world avatar. //Or you could take the "easy" way out and go all Edwald Snowdam on us. The choice is yours, punk.
+Should you have any questions concerning this handbook, your employment or benefits, please feel free to activate your Inner.HelpDesk to discuss them with your supervisor or manager's automated in-world avatar. //Or you could take the "easy" way out and go all Edwald Snowdam on us. The choice is yours, punk.
 
 Again, welcome!
 
