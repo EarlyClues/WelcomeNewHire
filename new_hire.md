@@ -1,14 +1,13 @@
-Employee Handbook
+[Extracted from Early Clues' Employee Handbook]
 
-Early Clues
 
-Welcome New Hire
+# WELCOME NEW HIRE 
 
-Welcome to Early Clues!
+## Welcome to Early Clues!
 
 Dear Employee:
 
-You and Early Clues have made an uber important decision: the corporate bond of marriage. And that means forever…
+You and Early Clues have made an uber-important decision: the corporate bond of marriage. And that means forever…
 
 [But in your limited form now, you can't possibly comprehend what that will entail, and how it will change you… ]
 You must be so excited to begin your career at Early Clues!
