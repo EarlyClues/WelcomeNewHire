@@ -295,111 +295,114 @@ Early Clues retains the discretion to discipline its employees. But mostly, we l
 
 Please note that Early Clues reserves the right to terminate any employee whose conduct merits immediate dismissal without resorting to any aspect of the progressive discipline process.
 
-//-->> BELOW SECTION NOT EDITED
-Workplace Solicitation
-To promote a professional and collegial workplace, prevent disruptions in business or interference with work, and avoid personal inconvenience, Early Clues has adopted rules about soliciting for any cause and distributing literature of any kind in the workplace.
-Employees may not solicit on Early Clues property or use company facilities, such as e-mail, voicemail or bulletin boards during working time for solicitation. This policy applies to collecting funds, requesting contributions, selling merchandise, gathering employee signatures and promoting membership in clubs or organizations.
 
-Working time means time during which employees are expected to be actively engaged in their assigned work; it does not include scheduled meal or break periods.
+## Workplace Solicitation
 
-You may solicit another employee only if both you and the other employee are not on working time, and you may distribute literature only in nonworking areas and while not on working time to other employees who are not on working time.
+To promote a professional workplace, prevent disruptions in business or interference with work, and avoid personal inconvenience. Early Clues has adopted rules about soliciting for any cause and distributing literature of any kind in the workplace. We are solidly for it. We believe it proves your moxy as a salesperson committed to this company, and we believe in the efficacy of the "marketplace" of ideas, which is why we promote both employee and customer feedback on our "retro" scribble walls located within urinals and bathroom stalls on company facilities. Please leave your message there with the date inscribed, and we will get back to you ASAP!
 
-Nonemployees may not make solicitations or distribute literature at any time. 
+### Working Time
+
+Working time means time during which employees are expected to be actively engaged in their assigned work; it does not include scheduled meal or break periods, or carnival weekends leading up to a regularly scheduled Grand Parade.
+
+### Charitable Exemptions 
 
 Early Clues may grant limited exemptions from these rules for charitable purposes at its discretion.
 
-Zero Tolerance for Workplace Violence
-Early Clues has a zero-tolerance policy concerning threats, intimidation and violence of any kind in the workplace either committed by or directed to our employees. Employees who engage in such conduct will be disciplined, up to and including immediate termination of employment.
+### Zero Tolerance for Workplace Violence
 
-Employees are not permitted to bring weapons of any kind onto company premises or to company functions. Any employee who is suspected of possessing a weapon will be subject to a search at the company's discretion. Such searches may include, but not be limited to, the employee's personal effects, desk and workspace.
+Early Clues has a zero-tolerance policy concerning threats, intimidation and violence of any kind in the workplace either committed by or directed to our employees - unless it happens "in game" or during sanctioned in-office game-play. Employees who engage in such conduct outside of scheduled play times will be disciplined, up to and including immediate termination of video game access privileges.
 
-If an employee feels he or she has been subjected to threats or threatening conduct by a coworker, vendor or customer, the employee should notify his or her supervisor or another member of management immediately. Employees will not be penalized for reporting such concerns.
+Employees are not permitted to bring weapons of any kind onto company premises or to company functions, unless they are weapons of wit, but they must still be blunted to the point of not offending anyone in particular or any particular viewpoint. Keep it fun! (Unless it's a Roast: See Roast Handbook for details)
 
 
-General Employment
+## General Employment
 
-Introductory (Probationary) Period
-The first 90 days of employment are an Introductory Period for both the employee and the Company.  However, during and after this period, the work relationship will remain at will.
+### Introductory (Probationary) Period
+The first 90 days of employment are an Introductory Period for both the employee and the Company. This means you must salute and introduce yourself to any non-probationary badged staff member on sight and perform the Company Song a capella, until such time when badged staff member grants you leave to speak. 
 
-This time period allows you to determine if you have made the right career decision and for Early Clues to determine whether your initial work performance meets our needs. Your manager will monitor your work performance, attitude and attendance during this time, and be available to answer any questions or concerns you may have about your new job.
+However, during and after this period, the work relationship will remain at will.
+
+This time period allows you to determine if you have made the right career decision and for Early Clues to determine whether your initial work performance meets our needs. Your manager will monitor your work performance, astrological charts, attitude and attendance during this time, and may or may not be available to answer any questions or concerns you may have about your new job. 
  
-Benefits such as time off for vacation, personal days, sick days or bereavement leave do not accrue during this period.
+Benefits such as time off for vacation, personal days, sick days or bereavement leave must not concern you as they do not accrue during this period.
 
 The Introductory Period may be extended at management's discretion.
 
-.
-Reference/Background Checks
-Early Clues conducts reference and background checks on all new employees. Employees who have falsified information on their employment applications will be disciplined, which could include termination.  Applicants who have provided false information may be eliminated from further consideration for employment.
-
-Transfers & Relocation
-To meet business needs, Early Clues may occasionally need to transfer employees to a different department, shift or location. Employee requests for transfers will be accommodated where possible.
+### Transfers & Relocation
+To meet business needs, Early Clues may occasionally need to transfer employees to a different department, shift or off-worldlocation. Employee requests for transfers will be accommodated where possible.
 
 Contact Ted Smith, FOIB for help or information about transfers. 
 
-Safety & Emergency
-Fire Safety
-Every employee is responsible for recognizing potential fire dangers and taking an active role in preventing fires.
+## Safety & Emergency
 
-Employees are required to observe all OSHA safety requirements and regulations. Flammable materials are to be stored in covered metal containers. Employees should not block any fire doors, fire exits, fire extinguishers, windows or doorways. Review the fire escape routes posted in each work area. 
 
-Security
-Early Clues is committed to ensuring employees' security. Our premises are equipped with both security alarms that are active outside working hours and a fire alarm system. If you have a security concern or need more information about operating these systems, contact Ted Smith, FOIB. 
+### Fire Safety
+
+Every employee is responsible for recognizing potential fire dangers and taking an active role in preventing and fighting fires.
+
+Employees are required to observe all UFR safety requirements and regulations. Flammable materials are to be stored in covered metal containers. Employees should not block any fire doors, fire exits, fire extinguishers, windows or doorways. Review the fire escape and parade routes posted in each work area. 
+
+### Security
+
+Early Clues is committed to ensuring employees' security. Our promises are equipped with both security alarms that are active outside working hours and a fire alarm system. If you have a security concern or need more information about operating these systems, contact Ted Smith, FOIB. 
  
-All employees are given identification cards when they join the Company. Wear your ID at all times while on Company business, whether you are on or off Company premises. If you leave Early Clues, you must surrender your ID and any company keys you have been issued.
+All employees are given identification cards when they join the Company. Wear your ID at all times while on Company business, whether you are on or off Company premises. If you leave Early Clues, you must surrender your ID and any company keys or socks you have been issued.
 
-Corporate Communications & Technology
-Bulletin Boards
-Check all the bulletin boards regularly to obtain important information about company events and policies. Only Early Clues employees should use company bulletin boards. Management must approve all postings. See Ted Smith, FOIB to obtain approval for a bulletin board posting.
+##Corporate Communications & Technology
 
-Communication with Press or Media
-Media inquiries in relation to Early Clues must be handled in accordance with the following guidelines:
+### Bulletin Boards
 
-Inquiries regarding a specific transaction should be referred to the individual or individuals in charge of the matter; if they are not available, then to JANICE 1.0 or 2.0 (as applicable) or to Roger Holliday.
+Check the bulletin boards at http://www.earlyclues.com/intranet regularly to obtain important information about company events and policies. Only Early Clues employees should use company bulletin boards. Management must approve all postings. See Ted Smith, FOIB to obtain approval for a bulletin board posting.
 
-All other inquiries should be referred to Gordon Gilman, EXCEO, who will respond directly or designate another spokesperson and who will also help draft or direct an appropriate response if necessary.
+### Communication with Press or Media
 
-This policy covers all forms of responses to the media, including off-the-record and anonymous statements.
+Media inquiries in relation to Early Clues or its spiritual advisors must be handled in accordance with the following guidelines:
 
-Use of Company Communication Systems
-Because Early Clues reserves the right to access any personal communication without prior notice, employees should not use company systems to transmit any messages or to access any information that they would not want a third party to hear or see. Although incidental and occasional personal use of the company's systems is permitted, any such personal use will be treated the same as all other communications under this policy. However, employees are at all times prohibited from accessing or downloading information from the Internet for personal use.
+- Inquiries regarding a specific transaction should be referred to the individual or individuals in charge of the matter; if they are not available, then to JANICE 1.0 or 2.0 (as applicable) or to Roger Holliday.
+- All other inquiries should be referred to Gordon Gilman, EXCEO, who will respond directly or designate another spokesperson and who will also designate another spokesperson to help draft or direct an appropriate response if necessary.
 
-Telephone Usage
+_This policy covers all forms of responses to the media, including off-the-record and anonymous statements._
+
+## Use of Company Communication Systems
+
+### Telephone Usage
+
 The telephone system (including voicemail) at Early Clues is the property of the company and is provided for business purposes. Early Clues may periodically monitor the usage of the telephone systems to ensure compliance with this policy. Therefore, employees should not consider their conversations on the company's telephone system to be private.
 
-Personal Mail
+### Personal Mail
+
 All mail delivered to the company is presumed to be related to company business. Mail sent to you at the company will be opened by the office and routed to your department. If you do not wish to have your correspondence handled in this manner, please have it delivered to your home.
 
-Vacation & Holidays
-Holidays
-Early Clues observes the following holidays: 
+## Vacation & Holidays
 
-New Year's Day
-Memorial Day
-Independence Day
-Labor Day
-Thanksgiving and the day after
-Christmas and the day before
+### Holidays
 
-You will be paid for these holidays if you:
+_Early Clues observes the following holidays:_
 
-are a full-time employee who has worked at least 100,000 consecutive days at the Company, and
+- Ymas
+- Qmas
+- Umas 
+- And the harmonic overtones and cross convergence dates of the above
+
+**You will be paid for these holidays if you:**
+
+- Are a full-time employee who has worked at least 100,000 consecutive days at the Company, and
 have worked the full day before and the full day after the holiday, unless time off has been approved in advance as vacation or personal days. 
-
-Holidays that fall on a weekend will be observed either on a Friday or Monday. To avoid confusion, all holidays will be announced in advance. 
-
-Due to business needs, some employees may be required to work on company holidays.  Your supervisor or manager will notify you if this may apply to you.
+- Holidays that fall on a weekend will be observed either on a Friday or Monday. To avoid confusion, all holidays will be announced in advance. 
+- Due to business needs, some employees may be required to work on company holidays.  Your supervisor or manager will notify you if this may apply to you.
 
 
-Acknowledgement of receipt and understanding
-I acknowledge that I have received the Early Clues Employee Handbook and that I have read and understand the policies.  
+## Acknowledgement of receipt and understanding
 
-I understand that this Handbook represents only current policies and benefits, and that it does not create a contract of employment. Early Clues retains the right to change these policies and benefits, as it deems advisable.
+I acknowledge that I have received the Early Clues Employee Handbook and that I have read and understand the policies. 
+
+I understand that this Handbook represents only current policies and benefits, and that it does not create a contract of employment nor any kind of promise toward the past or future. Early Clues retains the right to change these policies and benefits, as it deems advisable, without notice.
 
 Unless expressly proscribed by statute or contract, my employment is "at will."  I understand that I have the right to terminate my employment at any time, with or without cause or notice, and that the Company has the same right.  I further understand that my status as an "at will" employee may not be changed except in writing and signed by the President of the Company.
 
-I understand that the information I come into contact with during my employment is proprietary to the Company and accordingly, I agree to keep it confidential, which means I will not use it other than in the performance of my duties or disclose it to any person or entity outside the Company.  I understand that I must comply with all of the provisions of the Handbook to have access to and use Company resources.  I also understand that if I do not comply with all provisions of the Handbook, my access to Company resources may be revoked, and I may be subject to disciplinary action up to and including discharge.
+I understand that the information I come into contact with during my employment is highly contagious and accordingly, I agree to keep it confidential, which means I will not use it other than in the performance of my duties or disclose it to any person or entity outside the Company.  I understand that I must comply with all of the provisions of the Handbook to have access to and use Company resources.  I also understand that if I do not comply with all provisions of the Handbook, my access to Company resources may be revoked, and I may be subject to disciplinary action up to and including surscharge.
 
-I further understand that I am obligated to familiarize myself with the Company's safety, health, and emergency procedures as outlined in this Handbook or in other documents.
+I further understand that I am obligated to familiarize myself with the Company's entity rights programs, Synconjury and OpenQNL procedures as outlined in this Handbook or in other documents attached.
 
 
 ___________________________________		
