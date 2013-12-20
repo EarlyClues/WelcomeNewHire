@@ -22,8 +22,9 @@ Because our plan is to rigorously harvest employee enthusiasm, and transform it 
 If you've made it this far, it's because you've passed a rigorous 63.5-point background and permanent record/user history check, as required by *Universal Free Realms Standard Protocols regarding Worker Repurposing*. Investigation results are now available for private review in your Liminal Vault. After a 21 day probationary period, they will be released publicly in the interest of transparency on our multi-dimensional internet locality.
 
 The Company has tentatively decided (a position we are free to revoke without notice or hesitation) that you can [potentially] contribute to our success, and you've decided that Early Clues is the organization where you can pursue your career productively by updating your social media at a leisurely pace. As part of the hiring process, we begged you to reconsider this arrangement, but now we are all equally stuck. Legally and permanentinuously. So get used to it. 
-
 However, we believe we've each made the right decision, one that will result in a profitable relationship //[Note: This does not guarantee you additional financial remuneration, unless specified elsewhere in this handbook]. The minute you start working here, you become an integral part of Early Clues and its future.  (//And the minute you fuck up - you are dead, you hear me?/jk) 
+
+## Onboarding Process
 
 Anyway, as an integral part of our SATISFACTION PIPELINE PROCESS, it will be integral that you integrate fully your goals, desires and fantasies into our current corporate integration. Because, as we like to say around the office: we're all in this together! Ha, ha, ha!
 
@@ -36,10 +37,14 @@ Again, welcome!
 ## WHAT'S NEXT?
 
 We are also pleased to announce that you hereby agree formally, as per binding/non-binding terms in our [revised] employee agreement that, upon reading this sentence, you will finally and irrevocably revoke all sense of finality heretoafter in perpetuity. //Live in the now, bro!
-We thank you for your gracious compliance in this matter.
-Together, we can broaden our business horizons!
 
-Introduction & Description of Company
+We thank you for your gracious compliance in this matter. Together, we can broaden our business horizons!
+
+Signed,
+
+The Hiring Committee.
+
+##Introduction & Description of Company
 
 Please insert a description of your company, its goals, mission statement and values   
 
@@ -47,7 +52,7 @@ Please insert a description of your company, its goals, mission statement and va
 
 //No edits made yet to confidentiality section-GORD
 
-Confidentiality Agreement
+### Confidentiality Agreement
 
 Information that pertains to Early Clues's business, including all nonpublic information concerning the Company, its vendors and suppliers, is strictly confidential and must not be given to people who are not employed by Early Clues.
 
