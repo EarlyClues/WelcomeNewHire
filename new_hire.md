@@ -3,7 +3,7 @@
 
 # WELCOME NEW HIRE 
 
-## Welcome to Early Clues!
+## YOU'RE OFFICIALLY AWESOME!
 
 Dear Employee:
 
