@@ -5,7 +5,7 @@
 
 ## You're officially awesome!
 
-Dear Employee:
+*Dear Employee:*
 
 You and Early Clues have made an uber-important decision: the corporate bond of marriage. And that means forever…
 
@@ -20,18 +20,21 @@ Because our plan is to rigorously harvest employee enthusiasm, and transform it 
 ## CONGRATULATIONS ON YOUR SELECTION!
 
 If you've made it this far, it's because you've passed a rigorous 63.5-point background and permanent record/user history check, as required by Universal Free Realms Standard Protocols regarding Worker Repurposing. Investigation results are now available for private review in your Liminal Vault. After a 21 day probationary period, they will be released publicly in the interest of transparency on our multi-dimensional internet locality.
-The Company has tentatively decided (a position we are free to revoke without notice or hesitation) that you can [potentially] contribute to our success, and you've decided that Early Clues is the organization where you can pursue your career productively by updating your social media at a leisurely pace. As part of the hiring process, we begged you to reconsider this, but now we are all stuck. Legally and permanentinuously. So get used to it. 
+
+The Company has tentatively decided (a position we are free to revoke without notice or hesitation) that you can [potentially] contribute to our success, and you've decided that Early Clues is the organization where you can pursue your career productively by updating your social media at a leisurely pace. As part of the hiring process, we begged you to reconsider this arrangement, but now we are all equally stuck. Legally and permanentinuously. So get used to it. 
 
 However, we believe we've each made the right decision, one that will result in a profitable relationship //[Note: This does not guarantee you additional financial remuneration, unless specified elsewhere in this handbook]. The minute you start working here, you become an integral part of Early Clues and its future.  (//And the minute you fuck up - you are dead, you hear me?/jk) 
 
 Anyway, as an integral part of our SATISFACTION PIPELINE PROCESS, it will be integral that you integrate fully your goals, desires and fantasies into our current corporate integration. Because, as we like to say around the office: we're all in this together! Ha, ha, ha!
-Every job in our company is important (read: if you don't like it, we can find someone else who will for half your wage), and you will play a key role in the continued growth of our company, or you will be cast aside like so much useless junk. In fact, it is hereby obligatory that you immediately update your worldview pack so that the importance, grandeur and even, dare I say it, but majesty of our corporation occupies a position of undisputed centrality. You could call us "the mountain of your being," because that is what we've already become, and which you will spend every day hereafter climbing to actualize on our patented company ladders and climbing walls. With acceptance and installation of this simple critical patch, success is sure to follow! //*Note: Success not guaranteed/thx.leg
 
-Should you have any questions concerning this handbook, your employment or benefits, please feel free to discuss them with your supervisor or manager. //Or you could take the "easy" way out and go all Edwald Snowdam on us. The choice is yours, punk.
+Every job in our company is important (read: if you don't like it, we can find someone else who will be happy to do it with a smile[!] for half your current wage), and you will play a key role in the continued growth of our company, or you will be cast aside like so much useless junk. In fact, it is hereby obligatory that you immediately update your worldview pack so that the importance, grandeur and even, dare I say it, but majesty of our corporation occupies a position of undisputed centrality. You could call us "the mountain of your being," because that is what we've already become, and which you will spend every day hereafter climbing to actualize on our patented company ladders and climbing walls [Not available at all branch locations]. With acceptance and installation of this simple critical patch, success is sure to follow! //*Note: Success not guaranteed/thx.legL
 
- Again, welcome!
+Should you have any questions concerning this handbook, your employment or benefits, please feel free to activate your Inner.HelpDesk discuss them with your supervisor or manager's automated in-world avatar. //Or you could take the "easy" way out and go all Edwald Snowdam on us. The choice is yours, punk.
 
-WHAT'S NEXT?
+Again, welcome!
+
+## WHAT'S NEXT?
+
 We are also pleased to announce that you hereby agree formally, as per binding/non-binding terms in our [revised] employee agreement that, upon reading this sentence, you will finally and irrevocably revoke all sense of finality heretoafter in perpetuity. //Live in the now, bro!
 We thank you for your gracious compliance in this matter.
 Together, we can broaden our business horizons!
