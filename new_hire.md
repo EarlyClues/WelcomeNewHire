@@ -300,14 +300,6 @@ Please note that Early Clues reserves the right to terminate any employee whose 
 
 To promote a professional workplace, prevent disruptions in business or interference with work, and avoid personal inconvenience. Early Clues has adopted rules about soliciting for any cause and distributing literature of any kind in the workplace. We are solidly for it. We believe it proves your moxy as a salesperson committed to this company, and we believe in the efficacy of the "marketplace" of ideas, which is why we promote both employee and customer feedback on our "retro" scribble walls located within urinals and bathroom stalls on company facilities. Please leave your message there with the date inscribed, and we will get back to you ASAP!
 
-### Working Time
-
-Working time means time during which employees are expected to be actively engaged in their assigned work; it does not include scheduled meal or break periods, or carnival weekends leading up to a regularly scheduled Grand Parade.
-
-### Charitable Exemptions 
-
-Early Clues may grant limited exemptions from these rules for charitable purposes at its discretion.
-
 ### Zero Tolerance for Workplace Violence
 
 Early Clues has a zero-tolerance policy concerning threats, intimidation and violence of any kind in the workplace either committed by or directed to our employees - unless it happens "in game" or during sanctioned in-office game-play. Employees who engage in such conduct outside of scheduled play times will be disciplined, up to and including immediate termination of video game access privileges.
@@ -333,45 +325,6 @@ To meet business needs, Early Clues may occasionally need to transfer employees 
 
 Contact Ted Smith, FOIB for help or information about transfers. 
 
-## Safety & Emergency
-
-
-### Fire Safety
-
-Every employee is responsible for recognizing potential fire dangers and taking an active role in preventing and fighting fires.
-
-Employees are required to observe all UFR safety requirements and regulations. Flammable materials are to be stored in covered metal containers. Employees should not block any fire doors, fire exits, fire extinguishers, windows or doorways. Review the fire escape and parade routes posted in each work area. 
-
-### Security
-
-Early Clues is committed to ensuring employees' security. Our promises are equipped with both security alarms that are active outside working hours and a fire alarm system. If you have a security concern or need more information about operating these systems, contact Ted Smith, FOIB. 
- 
-All employees are given identification cards when they join the Company. Wear your ID at all times while on Company business, whether you are on or off Company premises. If you leave Early Clues, you must surrender your ID and any company keys or socks you have been issued.
-
-##Corporate Communications & Technology
-
-### Bulletin Boards
-
-Check the bulletin boards at http://www.earlyclues.com/intranet regularly to obtain important information about company events and policies. Only Early Clues employees should use company bulletin boards. Management must approve all postings. See Ted Smith, FOIB to obtain approval for a bulletin board posting.
-
-### Communication with Press or Media
-
-Media inquiries in relation to Early Clues or its spiritual advisors must be handled in accordance with the following guidelines:
-
-- Inquiries regarding a specific transaction should be referred to the individual or individuals in charge of the matter; if they are not available, then to JANICE 1.0 or 2.0 (as applicable) or to Roger Holliday.
-- All other inquiries should be referred to Gordon Gilman, EXCEO, who will respond directly or designate another spokesperson and who will also designate another spokesperson to help draft or direct an appropriate response if necessary.
-
-_This policy covers all forms of responses to the media, including off-the-record and anonymous statements._
-
-## Use of Company Communication Systems
-
-### Telephone Usage
-
-The telephone system (including voicemail) at Early Clues is the property of the company and is provided for business purposes. Early Clues may periodically monitor the usage of the telephone systems to ensure compliance with this policy. Therefore, employees should not consider their conversations on the company's telephone system to be private.
-
-### Personal Mail
-
-All mail delivered to the company is presumed to be related to company business. Mail sent to you at the company will be opened by the office and routed to your department. If you do not wish to have your correspondence handled in this manner, please have it delivered to your home.
 
 ## Vacation & Holidays
 
