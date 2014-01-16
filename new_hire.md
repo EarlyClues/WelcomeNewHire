@@ -62,7 +62,7 @@ Information that pertains to Early Clues's business, including all nonpublic inf
 Please help protect confidential & liminal information - which may include, for example, _trade secrets, customer lists and company financial information_ - by taking the following precautionary measures:
 
 - Wear a disguise at all times
-- Discuss work matters only with other Early Clues employees who have a specific business reason to know or have access to such information.
+- Discuss work matters only with other Early Clues employees who have a specific business reason to know or have access to such information and who are themselves wearing a disguise.
 - Do not discuss work matters in public places. Do not discuss work matters in private places. 
 - Monitor and supervise visitors to Early Clues to insure that they enjoy their visit.
 - Destroy hard copies of documents containing confidential information as may be required.
