@@ -65,7 +65,7 @@ Please help protect confidential & liminal information - which may include, for 
 - Discuss work matters only with other Early Clues employees who have a specific business reason to know or have access to such information and who are themselves wearing a disguise.
 - Do not discuss work matters in public places. Do not discuss work matters in private places. 
 - Monitor and supervise visitors to Early Clues to insure that they enjoy their visit.
-- Destroy hard copies of documents containing confidential information as may be required.
+- Destroy hard copies of documents containing confidential information as may be required to maintain one's own emotional integrity.
 - Secure confidential information in desk drawers and undergarments at the end of every business day.
 
 Your cooperation is particularly important because of our obligation to protect the security of our clients' and our own confidential information.  Use your own sound judgment and good common sense, but not too much or too often. If at any time you are uncertain as to whether you can properly divulge information or answer questions posed by your Inner.HelpDesk or its agents, please consult an Early Clues officer.
