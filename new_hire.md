@@ -347,13 +347,11 @@ have worked the full day before and the full day after the holiday, unless time 
 
 ## Acknowledgement of receipt and understanding
 
-I acknowledge that I have received the Early Clues Employee Handbook and that I have read and understand the policies. 
+I acknowledge that I have received the Early Clues Employee Handbook and that I have read and understand the policies on the deepest level of my being. 
 
-I understand that this Handbook represents only current policies and benefits, and that it does not create a contract of employment nor any kind of promise toward the past or future. Early Clues retains the right to change these policies and benefits, as it deems advisable, without notice.
+I understand that this Handbook represents only current policies and benefits, and that it does not create a contract of employment nor any kind of promise toward the past or future nor any alternate realities. Early Clues retains the right to change these policies and benefits, as it deems advisable, without notice.
 
-Unless expressly proscribed by statute or contract, my employment is "at will."  I understand that I have the right to terminate my employment at any time, with or without cause or notice, and that the Company has the same right.  I further understand that my status as an "at will" employee may not be changed except in writing and signed by the President of the Company.
-
-I understand that the information I come into contact with during my employment is highly contagious and accordingly, I agree to keep it confidential, which means I will not use it other than in the performance of my duties or disclose it to any person or entity outside the Company.  I understand that I must comply with all of the provisions of the Handbook to have access to and use Company resources.  I also understand that if I do not comply with all provisions of the Handbook, my access to Company resources may be revoked, and I may be subject to disciplinary action up to and including surscharge.
+I understand that the information I come into contact with during my employment is highly contagious and accordingly, I agree to keep it confidential and in the Public Domain.  I understand that I must comply with all of the provisions of the Handbook to have access to and use Company resources, and this includes donating my full annual salary back to the company.  
 
 I further understand that I am obligated to familiarize myself with the Company's entity rights programs, Synconjury and OpenQNL procedures as outlined in this Handbook or in other documents attached.
 
